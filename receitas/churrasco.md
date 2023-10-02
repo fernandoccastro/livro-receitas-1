@@ -13,8 +13,8 @@
 ### Preparo
 
 - Da play na musica
-- Prepara o chumarrão
-- Poem fogo na cgurrasqueira
+- Prepara o chimarrão
+- Poe fogo na churrasqueira
 - Mostra pro Gaucho onde fica o sal e a carne
 - Desfrute
 
